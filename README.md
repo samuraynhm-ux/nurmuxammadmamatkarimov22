@@ -1,0 +1,2 @@
+# nurmuxammadmamatkarimov22
+rent
