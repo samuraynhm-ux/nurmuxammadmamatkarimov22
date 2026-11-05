@@ -1,2 +1,1 @@
-# nurmuxammadmamatkarimov22
-rent
+nurmuxammad mamatkarimov
